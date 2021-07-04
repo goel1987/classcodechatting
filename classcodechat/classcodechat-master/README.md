@@ -15,6 +15,6 @@ Instructions to this assignment can be found [here](#).
 how many points out of 20 do you deserve on this assignment:
 10
 ## Self-Reflection:
-I felt like I did ok. I did not understand how to do everything but spent awhile trying to learn it and feel like I understand it. I felt I should have started it sooner and could have done it better. I felt as if initally I got intimidated with some of the projects but I feel more at ease. I spent more time practicing and going over things.
+I felt like I did ok. I did not understand how to do everything but spent awhile trying to learn it and feel like I understand it. I felt I should have started it sooner and could have done it better. I felt as if initally I got intimidated with some of the projects but I feel more at ease. I spent more time practicing and going over things but I felt I have improved
 ### How long it took me to finish this?
 more than 1 week
